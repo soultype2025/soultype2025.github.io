@@ -1,0 +1,1 @@
+# soultype2025.github.io
